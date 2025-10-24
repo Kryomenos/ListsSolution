@@ -1,2 +1,1 @@
-
-![Uploading 17613364005842767574286350312369.png…]()
+https://github.com/Kryomenos/ListsSolution/blob/master/q5ge741HlH.png
